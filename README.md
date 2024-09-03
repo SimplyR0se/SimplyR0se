@@ -1,0 +1,5 @@
+- Greetings, I’m Rose
+- I’m interested in Genshin Impact
+- I usually do absolutely nothing here
+- My pronouns are She/they
+-  Fun fact: I have social anxiety :(
